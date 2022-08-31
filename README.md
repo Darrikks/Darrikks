@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Darrikks
+- 👀 I’m interested in table tennis, video-games, and making money
+- 🌱 I’m currently learning at Astana IT University
+- 📫 My contacts: @dorisinspiration on Instagram, Telegram, everywhere you want.
